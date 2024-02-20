@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kavimagizh
 - 👀 I’m interested in Pokemon cards Collecting
-- 🌱 I’m currently learning 7th Standerd
+- 🌱 I’m currently learning 7th Standard
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
